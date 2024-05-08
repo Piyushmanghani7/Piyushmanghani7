@@ -1,5 +1,6 @@
 ### Hi there, I'm Piyush Manghani👋
-![326245-P9Z29X-961](https://github.com/Piyushmanghani7/Piyushmanghani7/assets/36550044/ee1bb16c-1576-4d8f-85af-ad4abbb11e1a)
+
+<img width="623" alt="Screenshot 2024-05-08 at 3 57 57 AM" src="https://github.com/Piyushmanghani7/Piyushmanghani7/assets/36550044/e2bbf50a-c899-441b-83a4-7edfc91f8087">
 
 
 •    👋 Hi, I’m @piyushmanghani7
