@@ -1,6 +1,6 @@
 ### Hi there, I'm Piyush Manghani👋
+![326245-P9Z29X-961](https://github.com/Piyushmanghani7/Piyushmanghani7/assets/36550044/ee1bb16c-1576-4d8f-85af-ad4abbb11e1a)
 
-![2592285](https://github.com/Piyushmanghani7/Piyushmanghani7/assets/36550044/72d9ebc7-8d3b-4211-8f64-5f1162510e03)
 
 •    👋 Hi, I’m @piyushmanghani7
 
